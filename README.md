@@ -1,1 +1,1 @@
-# Kayorism---All-in-one-for-Japanese-learning-
+# Kayorism-All-in-one-for-Japanese-learning-
